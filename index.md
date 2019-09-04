@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Eleni Schmitt - Technical Resume
 
-I'm glad you are here. I plan to talk about ...
+I am a CIS major at the University of Tulsa graduating in May 2020.  
